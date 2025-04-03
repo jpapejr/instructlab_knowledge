@@ -1,7 +1,7 @@
 George Washinton
 
 
-George Washington (February 22, 1732 [O.S. February 11, 1731][a] – December 14, 1799) was a Founding Father and the first president of the United States,
+George Washington (February 22, 1732  – December 14, 1799) was a Founding Father and the first president of the United States,
 serving from 1789 to 1797. As commander of the Continental Army, Washington led Patriot forces to victory in the American Revolutionary War against the
 British Empire. He is commonly known as the Father of His Country for his role in bringing about American independence.
 
